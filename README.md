@@ -7,5 +7,9 @@ Några av mina intressen inkluderar:
 - Kampsport
 - Gaming 
 
+**Kontakta mig:**
+- E-post: Gurban Rezaii
+- GitHub: https://github.com/GurbanR
+- Telefon: 0730000000
 
 
